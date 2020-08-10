@@ -1,1 +1,1 @@
-This is a recipe guide for my Red Velvet Cake
+This is the recipe guide for my world-famous Red Velvet Cake.
